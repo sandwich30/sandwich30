@@ -2,4 +2,4 @@
 
 **istj**
 
-_im not that talkative ♡ freely interact w me though_
+_im not that talkative . freely interact w me though_
